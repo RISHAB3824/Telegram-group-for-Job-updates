@@ -2,7 +2,7 @@
 
 - 1. https://t.me/goyalarsh (Arsh Goyal)
 
-- 2. https://t.me/heavenforcoders(Coding Devs India) 
+- 2. https://t.me/heavenforcoders (Coding Devs India) 
 
 - 3. https://t.me/gocareers (Go Careers)
 
